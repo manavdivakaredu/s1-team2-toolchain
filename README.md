@@ -1,3 +1,3 @@
 # s1-team2-toolchain
 
-we are the smartest team!
+the team is lovely
